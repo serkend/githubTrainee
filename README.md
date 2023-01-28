@@ -1,3 +1,1 @@
 # githubTrainee
-# githubTrainee
-# githubTraineeAKSDLKADLKA
